@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I am Lakshay from Punjab, A curious learner working in the field of DATA<br><br> 
+A curious learner working in the field of DATA with strong foundation in PYTHON and Linux <br><br> 
 
 
 ## 🌐 Socials:
