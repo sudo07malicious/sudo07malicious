@@ -1,5 +1,5 @@
 # 💫 About Me:
-A curious learner working in the field of DATA with strong foundation in PYTHON and Linux <br><br> 
+A curious vayoger,Exploring the tech world with strong foundation in PYTHON and LINUX distributions. <br><br> 
 
 
 ## 🌐 Socials:
